@@ -61,4 +61,4 @@
 
 ---
 
-⭐ *“Combining intelligence with data to shape the future of finance and technology.
+⭐ Combining intelligence with data to shape the future of finance and technology.
